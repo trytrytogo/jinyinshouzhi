@@ -11,8 +11,7 @@
 每满4000金币（4毛）微信自动提现
 
 
-![Screenshot_20211009_124834_com.tencent.mm_edit_1966157526994256.jpg](https://i.loli.net/2021/10/09/2QxrqWNoTe7l15S.jpg)
-
+![Snipaste_2021-10-09_13-48-52.jpg](https://i.loli.net/2021/10/09/KXhIYFqV3DoPxf5.jpg)
 
 
 
